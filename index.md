@@ -10,7 +10,7 @@
 
 
 
-# <span style="color:violet">عسل فاخر</span> <span style="color:blue">وموثوق</span>
+# <span style="color:violet">عسل موثوق</span> <span style="color:blue">ذو مذاق طيب</span>
 
 # <span style="color:violet">جودة عالية</span> <span style="color:blue">بأسعار مناسبة </span>
 
